@@ -6,3 +6,5 @@ Task 2 (LOGO)
 The link for Task 2 is - https://www.canva.com/design/DAFoTxfgwVo/keO5_vT1QiG5LV8iOBZJug/edit?utm_content=DAFoTxfgwVo&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
 Task 3 (Business Card)
 The link for Task 3 is - https://www.canva.com/design/DAFo-0D53lo/L0bpzCCefzpwdq8fr6U4Dg/edit?utm_content=DAFo-0D53lo&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+Task 4 (Infographics)
+The linkk for Task 4 is - https://www.canva.com/design/DAFqFxFNNTk/9eaKRUbJeWUBjVOhLqyrlw/edit?utm_content=DAFqFxFNNTk&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
